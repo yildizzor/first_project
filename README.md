@@ -1,1 +1,1 @@
-# wat_ik_zal_leren
+# wat heb ik geleerd
